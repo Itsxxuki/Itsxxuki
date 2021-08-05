@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Itsxxuki
-- 👀 I’m interested in finding ppl as young as me "11" so i donfeel so left out .-.
+- 👀 I’m interested in finding ppl as young as me "11" so i dont feel so left out .-.
 - 🌱 I’m currently learning linux and python
 - 💞️ I’m looking to collaborate on idk
 - 📫 How to reach me no idea
